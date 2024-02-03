@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Ijay247
+- 👋 Hi, I’m John Iliya
 - 👀 I’m interested in ...Upskilling Initiatives
 - 🌱 I’m currently learning ...UNITAR-Microsoft Foundational Learning Pathway
 - 💞️ I’m looking to collaborate on ...INTEGRATING VSLAs WITH DIGITAL UPSKILLING INTITIATIVES
