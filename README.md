@@ -1,7 +1,7 @@
 - 👋 Hi, I’m John Iliya
 - 👀 I’m interested in ...Upskilling Initiatives
 - 🌱 I’m currently learning ...UNITAR-Microsoft Foundational Learning Pathway
-- 💞️ I’m looking to collaborate on ...INTEGRATING VSLAs WITH DIGITAL UPSKILLING INTITIATIVES
+- 💞️ I’m looking to collaborate on ...INTEGRATING VSLAs WITH DIGITAL UPSKILLING INITIATIVES
 - 📫 How to reach me ...+2348086500725, iliyaski4real@gmail.com
 - 😄 Pronouns: ...Mr
 - ⚡ Fun fact: ...
